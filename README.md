@@ -142,7 +142,7 @@ Chuck Norris and Bruce Lee are the last in line of master professional warriors
 but I believe some of the newer amateur MMA fighters could have defeated even Bruce Lee.
 
 Former professional actors like Emma Watson, Sarah Michelle Gellar, Summer
-Glau and Chuck Norris who the better they become the more they were resented,
+Glau, and Chuck Norris, who the better they become the more they were resented,
 hated, envied and mistreated, until it hit their breaking point. Simply because
 they were professionals and were paid money.
 
