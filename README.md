@@ -32,7 +32,7 @@ met with gratitude, respect and admiration by the people I helped on
 announcing that I have solved a new one - also without paying.
 
 I was much happier as an amateur - someone who does what he do for fun,
-not to get paid.
+not to get paid. See http://paulgraham.com/opensource.html .
 
 Lately, by inspiration from a correspondent on a chat who mentioned
 someone's one line Resume, I wrote my ["I'm a Rock Star Resume"](https://www.shlomifish.org/me/resumes/Shlomi-Fish-Resume-as-Software-Dev.html) where I included only amateur achievements, including Project Euler and excluded the Technion. At first I thought it was because EE B.Sc. degrees are not notable enough. But then I realised: I wasn't proud of it. These were my most vexing, toxic, soul destroying, unproductive six years of my life. I regret doing it for greed of money.
