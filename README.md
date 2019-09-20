@@ -146,4 +146,4 @@ got paid little. He became a happy respected amateur.
 But for now I'll write my real person fic on singers and YouTube musicians.
 I already have one more factoid about Taylor Swift and there doubtless will be more.
 And I assure you that for a long time you won't see a youtube video "Why people
-won't listen to Taylor Swift again?" Poor Taylor! I'm sure she won't survive.
+won't listen to Taylor Swift's songs again?" Poor Taylor! I'm sure she won't survive.
