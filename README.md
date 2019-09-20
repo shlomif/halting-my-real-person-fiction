@@ -52,7 +52,7 @@ that she probably charges more than 300 USD/hour, but the fact of the matter
 she might perform even for free for something that is important to her
 because performing is fun. Her videos despite often being popular probably
 do not offset their production value in ads, but they are good publicity,
-provide fodder for remixes, and are fun enough to produce so she can afford
+provide fodder for remixes, parodies and covers, and are fun enough to produce so she can afford
 to offset the cost. She doesn't work for money or even for a shitload of
 money. She works for fun.
 
@@ -148,4 +148,4 @@ got paid little. He became a happy respected amateur.
 But for now I'll write my real person fic on singers and YouTube musicians.
 I already have one more factoid about Taylor Swift and there doubtless will be more.
 And I assure you that for a long time you won't see a youtube video "Why people
-won't listen to Taylor Swift's songs again?" Poor Taylor! I'm sure she won't survive.
+won't listen to Taylor Swift's songs again?" Poor Taylor! I'm sure she won't survive reading this Taylor Swift Factoid, and sue me immediately.
