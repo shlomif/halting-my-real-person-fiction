@@ -107,7 +107,7 @@ still funny and fresh.
 You may not know who she is but https://twitter.com/EmmaWatson is the most
 highly paid actress in Hollywood. But it's not as if she is the new Arnold
 Schwarzenegger. Instead, Arnold Schwarzenegger is the old Emma Watson!
-Poor Emma. Why do you feel sorry for her?
+Poor Emma. Why do we feel sorry for her?
 
 Let me try it again. It's not as if Taylor Swift was the new Madonna. In fact,
 Swift is the new Socrates! I'm sure Ms. Swift will approve of the new Taylor
@@ -118,7 +118,7 @@ It does not have to be this way.
 ## Actors are not replaceable
 
 Jewel Straite testified that only she and Summer Glau could have played their
-characters on firefly. Similarly I am more and more convinced that only
+characters on Firefly. Similarly I am more and more convinced that only
 Emma Watson can play Selina on [Selina-Mandrake](https://www.shlomifish.org/humour/Selina-Mandrake/) but I'd like her to do it for fun and work for relatively
 little. It will be prepostorous to assume that Christina Grimmie can ever be
 replaced by [Tiffany Alvord](https://en.wikipedia.org/wiki/Tiffany_Alvord)
@@ -138,6 +138,10 @@ So former professional actors like Emma Watson, Sarah Michelle Gellar, Summer
 Glau and Chuck Norris who the better they become the more they were resented,
 hated, envied and mistreated until they hit their breaking point. Simply because
 they were professionals and were paid money.
+
+It is possible that the reason it seems like Chuck Norris Facts have made a comeback
+recently is because Norris has decided to play in roles he liked, even if he
+got paid little. He became a happy respected amateur.
 
 But for now I'll write my real person fic on singers and YouTube musicians.
 I already have one more factoid about Taylor Swift and there doubtless will be more.
