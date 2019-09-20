@@ -19,7 +19,7 @@ my health further, and taught me little of lasting value. Despite paying I
 didn't enjoy it, and only did it to get the diploma, so i can get a more
 lucrative job later on.
 
-Paying and get paid made the experience worse. This is the curse of professionalism.
+Paying and getting paid made the experience worse. This is the curse of professionalism.
 
 Many years later, I started solving problems at [Project Euler](https://en.wikipedia.org/wiki/Project_Euler), one of many [competitive programming](https://github.com/EbookFoundation/free-programming-books/blob/master/problem-sets-competitive-programming.md). Since I had quite a bit of math and programming background,
 I did quite well at it having solver over 300 problems.
@@ -33,6 +33,11 @@ announcing that I have solved a new one - also without paying.
 
 I was much happier as an amateur - someone who does what he do for fun,
 not to get paid.
+
+Lately by inspiration from a correspondent on a chat who gave me a free advice
+for emulating my ["I'm a Rock Star Resume"](https://www.shlomifish.org/me/resumes/Shlomi-Fish-Resume-as-Software-Dev.html) where I included only amateur achievements, including Project Euler and excluded the Technion. At first I thought it was because EE B.Sc. degrees are not notable enough. But then I realised: I wasn't proud of it. These were my most vexing, toxic, soul destroying, unproductive six years of my life. I regret doing it for greed of money.
+
+That junkie stand up comedian whom i saw at a captioned twitter video was right: if you want to succeed as a writer and entertainer: don't work "hard".
 
 ## Taylor Swift as an amateur
 
