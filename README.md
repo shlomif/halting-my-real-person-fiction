@@ -71,10 +71,10 @@ But I did not.
 
 ## Sarah Michelle Gellar and Summer Glau
 
-Instead I sent [Sarah Michelle Gellar](https://en.wikipedia.org/wiki/Sarah_Michelle_Gellar) and [Summer Glau](https://en.wikipedia.org/wiki/Summer_Glau) two
+Instead I sent [Sarah Michelle Gellar](https://en.wikipedia.org/wiki/Sarah_Michelle_Gellar), and [Summer Glau](https://en.wikipedia.org/wiki/Summer_Glau), two
 actresses who seemed invaluable for that due to previous associations, and
 while their acting careers were already on the brink of termination, and I
-depicted them positively, likely may have sealed the envelope on both of they
+depicted them positively, likely may have sealed the envelope on both of their
 careers. Why?
 
 Because they are professionals. The better they played, the more they were
@@ -87,9 +87,9 @@ quote: "it does not happen some of the time. It happens all the time."
 But in the music industry it never happens. It will be very preposterous to
 hear "Why no one will hear The Beatles anymore." and even though
 [Christina Grimmie](https://en.wikipedia.org/wiki/Christina_Grimmie) was killed
-(in part due to her own mismanagement) and I was shocked and saddened by that)
+(in part due to her own mismanagement), and I was shocked and saddened by that,
 her songs are still popular and if I
-now rewrote my screenplay depicting her as a super intelligent female who
+now rewrote my screenplay depicting her as a super intelligent and resourceful female who
 kicks the ass of the NSA, people will think I am helping keep her legacy
 alive and rever me for it.
 
@@ -107,7 +107,7 @@ still funny and fresh.
 You may not know who she is but https://twitter.com/EmmaWatson is the most
 highly paid actress in Hollywood. But it's not as if she is the new Arnold
 Schwarzenegger. Instead, Arnold Schwarzenegger is the old Emma Watson!
-Why do feel sorry for her?
+Poor Emma. Why do you feel sorry for her?
 
 Let me try it again. It's not as if Taylor Swift was the new Madonna. In fact,
 Swift is the new Socrates! I'm sure Ms. Swift will approve of the new Taylor
@@ -140,6 +140,6 @@ hated, envied and mistreated until they hit their breaking point. Simply because
 they were professionals and were paid money.
 
 But for now I'll write my real person fic on singers and YouTube musicians.
-I already have one factoid about Taylor Swift and there doubtless will be more.
+I already have one more factoid about Taylor Swift and there doubtless will be more.
 And I assure you that for a long time you won't see a youtube video "Why people
 won't listen to Taylor Swift again?" Poor Taylor! I'm sure she won't survive.
