@@ -41,9 +41,10 @@ That junkie stand up comedian whom i saw at a captioned twitter video was right:
 
 ## Taylor Swift as an amateur
 
-Someone on freenode complained how much he disliked Apple's Swift language
+Someone on freenode complained how much he disliked [Apple's Swift](https://en.wikipedia.org/wiki/Swift_(programming_language))
+programming language
 (which you may not have heard of) and I suggested he charge more - maybe 300
-USD / hour - which he said no one can afford. It reminded me of
+USD / hour - which he said no one can afford. Its name reminded me of
 [Taylor Swift](https://en.wikipedia.org/wiki/Taylor_Swift) - a successful
 and popular singer, who has many videos on YouTube, some of which I am fond
 of and many people praise. You probably heard of her. Now, I told him
