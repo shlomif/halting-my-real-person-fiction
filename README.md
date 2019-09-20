@@ -117,7 +117,7 @@ It does not have to be this way.
 
 ## Actors are not replaceable
 
-Jewel Straite testified that only she and Summer Glau could have played their
+Jewel Staite [testified](https://www.reddit.com/r/IAmA/comments/2e3t1f/jewel_staite_ama/cjvt8t9/) that only she and Summer Glau could have played their
 characters on Firefly. Similarly I am more and more convinced that only
 Emma Watson can play Selina on [Selina-Mandrake](https://www.shlomifish.org/humour/Selina-Mandrake/) but I'd like her to do it for fun and work for relatively
 little. It will be prepostorous to assume that Christina Grimmie can ever be
@@ -125,7 +125,7 @@ replaced by [Tiffany Alvord](https://en.wikipedia.org/wiki/Tiffany_Alvord)
 or even Taylor Swift even though all three are wonderful singers.
 
 Actors should become amateurs and work for fun on amateur films they like by
-amateur writers who like me write mainly fanfic and often crossovers and
+amateur writers who like me write mainly fanfic and often crossovers and even
 real person fiction. As much as I like Kermit the Frog or Lucky Luke they
 should star along [Chuck Norris and Summer Glau](https://www.shlomifish.org/humour/Muppets-Show-TNI/Summer-Glau-and-Chuck-Norris.html) because they are equally
 awesome even if real.
