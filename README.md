@@ -73,17 +73,18 @@ But I did not.
 ## Sarah Michelle Gellar and Summer Glau
 
 Instead I sent the actresses [Sarah Michelle Gellar](https://en.wikipedia.org/wiki/Sarah_Michelle_Gellar), and [Summer Glau](https://en.wikipedia.org/wiki/Summer_Glau), two
-actresses who seemed invaluable for that due to previous associations, and
+actresses who seemed invaluable for that due to previous associations I had, and
 while their acting careers were already on the brink of termination, and I
 depicted them positively, likely may have sealed the envelope on both of their
 Hollywood careers. But it was probably the best for both, because the Hollywood
-professionals were already intimidated by them Why?
+professionals were already intimidated by them, and they could be more productive as non-acting non-professionals activists. Why?
 
 Because they are professionals. The better they played, the more they were
 scorned and maligned and given poor roles by other jealous professional movie
 makers who were jealous of their competency and elevated perception by amateur
 fans who knew better. There is a whole [YouTube search about why Hollywood cannot cast X anymore](https://twitter.com/shlomif/status/1174571159372935168) but
-it is the same old story. To paraphrase on an old original Star Trek series
+it is the same old story. To paraphrase on an old Star Trek (the original
+series)
 quote: "it does not happen some of the time. It happens all the time."
 
 But in the music industry it never happens. It will be very preposterous to
@@ -138,16 +139,16 @@ awesome even if real.
 
 Chuck Norris and Bruce Lee are the last in line of master professional warriors
 (believed to have passed through [Saladin](http://shlomifishswiki.branchable.com/Saladin_Style/) himself - one of the greatest and most underrated hackers of all time)
-but I believe some of the newer amateur MMA fighters could have defeated even Bruce Lee himself.
+but I believe some of the newer amateur MMA fighters could have defeated even Bruce Lee.
 
 Former professional actors like Emma Watson, Sarah Michelle Gellar, Summer
 Glau and Chuck Norris who the better they become the more they were resented,
-hated, envied and mistreated until they hit their breaking point. Simply because
+hated, envied and mistreated, until it hit their breaking point. Simply because
 they were professionals and were paid money.
 
 It is possible that the reason it seems like [Chuck Norris Facts](https://www.shlomifish.org/humour/bits/facts/Chuck-Norris/) have made a comeback
 recently is because Norris has decided to play in roles he liked, even if he
-got paid little. He became a happy respected amateur.
+got paid little. He became a happy and respected amateur.
 
 But for now I'll write my real person fic on singers and YouTube musicians.
 I already have one more factoid about Taylor Swift and there doubtless will be more.
