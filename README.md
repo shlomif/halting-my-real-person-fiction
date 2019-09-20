@@ -98,7 +98,7 @@ alive and rever me for it.
 
 I want to become the next big writer, but I want to remain writing for fun,
 publishing for free on my site under Creative Commons licences, and writing
-mostly fanfic or even RPF. People feel sorry for JK Roling for being a professional, despite her being a millionaire.
+mostly fanfic or even real person fiction. People feel sorry for JK Roling for being a professional, despite her being a millionaire.
 
 But people like me, respect me or even think I'm prepostorous or blasphemous
 (which indicates I may be right - http://shlomifishswiki.branchable.com/Encourage_criticism_and_try_to_get_offended/ ). People would cringe at reading the Harry
@@ -121,9 +121,10 @@ It does not have to be this way.
 Jewel Staite [testified](https://www.reddit.com/r/IAmA/comments/2e3t1f/jewel_staite_ama/cjvt8t9/) that only she and Summer Glau could have played their
 characters on Firefly. Similarly I am more and more convinced that only
 Emma Watson can play Selina on [Selina-Mandrake](https://www.shlomifish.org/humour/Selina-Mandrake/) but I'd like her to do it for fun and work for relatively
-little. It will be prepostorous to assume that Christina Grimmie can ever be
+little. It will be prepostorous to assume that the late Christina Grimmie can
+ever be
 replaced by [Tiffany Alvord](https://en.wikipedia.org/wiki/Tiffany_Alvord)
-or even Taylor Swift even though all three are wonderful singers.
+or even be Taylor Swift even though all three are wonderful singers.
 
 Actors should become amateurs and work for fun on amateur films they like by
 amateur writers who like me write mainly fanfic and often crossovers and even
@@ -132,15 +133,15 @@ should star along [Chuck Norris and Summer Glau](https://www.shlomifish.org/humo
 awesome even if real.
 
 Chuck Norris and Bruce Lee are the last in line of master professional warriors
-(believed to have passed through [Saladin](http://shlomifishswiki.branchable.com/Saladin_Style/) himself - one of the greatest and underrated hackers of all time)
+(believed to have passed through [Saladin](http://shlomifishswiki.branchable.com/Saladin_Style/) himself - one of the greatest and most underrated hackers of all time)
 but I believe some of the newer amateur MMA fighters could have overcome even Bruce Lee himself.
 
-So former professional actors like Emma Watson, Sarah Michelle Gellar, Summer
+Former professional actors like Emma Watson, Sarah Michelle Gellar, Summer
 Glau and Chuck Norris who the better they become the more they were resented,
 hated, envied and mistreated until they hit their breaking point. Simply because
 they were professionals and were paid money.
 
-It is possible that the reason it seems like Chuck Norris Facts have made a comeback
+It is possible that the reason it seems like [Chuck Norris Facts](https://www.shlomifish.org/humour/bits/facts/Chuck-Norris/) have made a comeback
 recently is because Norris has decided to play in roles he liked, even if he
 got paid little. He became a happy respected amateur.
 
