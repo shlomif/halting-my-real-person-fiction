@@ -34,10 +34,10 @@ announcing that I have solved a new one - also without paying.
 I was much happier as an amateur - someone who does what he do for fun,
 not to get paid.
 
-Lately by inspiration from a correspondent on a chat who gave me a free advice
-for emulating my ["I'm a Rock Star Resume"](https://www.shlomifish.org/me/resumes/Shlomi-Fish-Resume-as-Software-Dev.html) where I included only amateur achievements, including Project Euler and excluded the Technion. At first I thought it was because EE B.Sc. degrees are not notable enough. But then I realised: I wasn't proud of it. These were my most vexing, toxic, soul destroying, unproductive six years of my life. I regret doing it for greed of money.
+Lately, by inspiration from a correspondent on a chat who mentioned
+someone's one line Resume, I wrote my ["I'm a Rock Star Resume"](https://www.shlomifish.org/me/resumes/Shlomi-Fish-Resume-as-Software-Dev.html) where I included only amateur achievements, including Project Euler and excluded the Technion. At first I thought it was because EE B.Sc. degrees are not notable enough. But then I realised: I wasn't proud of it. These were my most vexing, toxic, soul destroying, unproductive six years of my life. I regret doing it for greed of money.
 
-That junkie stand up comedian whom i saw at a captioned twitter video was right: if you want to succeed as a writer, entertainer and amateur philosopher: don't work "hard".
+That junkie stand up comedian whom I saw at a captioned twitter video was right: if you want to succeed as a writer, entertainer and amateur philosopher: don't work "hard".
 
 ## Taylor Swift as an amateur
 
@@ -47,7 +47,7 @@ programming language
 USD / hour - which he said no one can afford. Its name reminded me of
 [Taylor Swift](https://en.wikipedia.org/wiki/Taylor_Swift) - a successful
 and popular singer, who has many videos on YouTube, some of which I am fond
-of and many people praise. You probably heard of her. Now, I told him
+of and which many people praise. You probably heard of her. Now, I told him
 that she probably charges more than 300 USD/hour, but the fact of the matter
 she might perform even for free for something that is important to her
 because performing is fun. Her videos despite often being popular probably
@@ -72,11 +72,12 @@ But I did not.
 
 ## Sarah Michelle Gellar and Summer Glau
 
-Instead I sent [Sarah Michelle Gellar](https://en.wikipedia.org/wiki/Sarah_Michelle_Gellar), and [Summer Glau](https://en.wikipedia.org/wiki/Summer_Glau), two
+Instead I sent the actresses [Sarah Michelle Gellar](https://en.wikipedia.org/wiki/Sarah_Michelle_Gellar), and [Summer Glau](https://en.wikipedia.org/wiki/Summer_Glau), two
 actresses who seemed invaluable for that due to previous associations, and
 while their acting careers were already on the brink of termination, and I
 depicted them positively, likely may have sealed the envelope on both of their
-careers. Why?
+Hollywood careers. But it was probably the best for both, because the Hollywood
+professionals were already intimidated by them Why?
 
 Because they are professionals. The better they played, the more they were
 scorned and maligned and given poor roles by other jealous professional movie
@@ -86,7 +87,7 @@ it is the same old story. To paraphrase on an old original Star Trek series
 quote: "it does not happen some of the time. It happens all the time."
 
 But in the music industry it never happens. It will be very preposterous to
-hear "Why no one will hear The Beatles anymore." and even though
+hear "Why no one will hear The Beatles anymore.". Even though
 [Christina Grimmie](https://en.wikipedia.org/wiki/Christina_Grimmie) was killed
 (in part due to her own mismanagement), and I was shocked and saddened by that,
 her songs are still popular and if I
@@ -100,13 +101,16 @@ I want to become the next big writer, but I want to remain writing for fun,
 publishing for free on my site under Creative Commons licences, and writing
 mostly fanfic or even real person fiction. People feel sorry for JK Roling for being a professional, despite her being a millionaire.
 
-But people like me, respect me or even think I'm prepostorous or blasphemous
+But people either love my work, respect me or even think I'm prepostorous or blasphemous
 (which indicates I may be right - http://shlomifishswiki.branchable.com/Encourage_criticism_and_try_to_get_offended/ ). People would cringe at reading the Harry
 Potter books now ("TL;DR") but many of my old stories, aphorisms or factoids are
 still funny and fresh.
 
 You may not know who she is but https://twitter.com/EmmaWatson is the most
-highly paid actress in Hollywood. But it's not as if she is the new Arnold
+highly paid actress in Hollywood, famous for having played Hermione in the
+Harry Potter films. It makes her comparable to https://en.wikipedia.org/wiki/Arnold_Schwarzenegger who also was paid well.
+
+But it's not as if she is the new Arnold
 Schwarzenegger. Instead, Arnold Schwarzenegger is the old Emma Watson!
 Poor Emma. Why do we feel sorry for her?
 
@@ -123,8 +127,8 @@ characters on Firefly. Similarly I am more and more convinced that only
 Emma Watson can play Selina on [Selina-Mandrake](https://www.shlomifish.org/humour/Selina-Mandrake/) but I'd like her to do it for fun and work for relatively
 little. It will be prepostorous to assume that the late Christina Grimmie can
 ever be
-replaced by [Tiffany Alvord](https://en.wikipedia.org/wiki/Tiffany_Alvord)
-or even be Taylor Swift even though all three are wonderful singers.
+replaced by her YouTuber colleague [Tiffany Alvord](https://en.wikipedia.org/wiki/Tiffany_Alvord)
+or even by Taylor Swift even though all three are wonderful singers.
 
 Actors should become amateurs and work for fun on amateur films they like by
 amateur writers who like me write mainly fanfic and often crossovers and even
@@ -134,7 +138,7 @@ awesome even if real.
 
 Chuck Norris and Bruce Lee are the last in line of master professional warriors
 (believed to have passed through [Saladin](http://shlomifishswiki.branchable.com/Saladin_Style/) himself - one of the greatest and most underrated hackers of all time)
-but I believe some of the newer amateur MMA fighters could have overcome even Bruce Lee himself.
+but I believe some of the newer amateur MMA fighters could have defeated even Bruce Lee himself.
 
 Former professional actors like Emma Watson, Sarah Michelle Gellar, Summer
 Glau and Chuck Norris who the better they become the more they were resented,
