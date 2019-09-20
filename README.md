@@ -151,6 +151,6 @@ recently is because Norris has decided to play in roles he liked, even if he
 got paid little. He became a happy and respected amateur.
 
 But for now I'll write my real person fic on singers and YouTube musicians.
-I already have one more factoid about Taylor Swift and there doubtless will be more.
+I already have one more factoid about Taylor Swift and there likely will be more.
 And I assure you that for a long time you won't see a youtube video "Why people
 won't listen to Taylor Swift's songs again?" Poor Taylor! I'm sure she won't survive reading this Taylor Swift Factoid, and sue me immediately.
