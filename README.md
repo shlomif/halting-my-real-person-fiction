@@ -83,8 +83,41 @@ quote: "it does not happen some of the time. It happens all the time."
 But in the music industry it never happens. It will be very preposterous to
 hear "Why no one will hear The Beatles anymore." and even though
 [Christina Grimmie](https://en.wikipedia.org/wiki/Christina_Grimmie) was killed
-(in part due to her own mismanagement) her songs are still popular and if I
+(in part due to her own mismanagement) and I was shocked and saddened by that
+her songs are still popular and if I
 now rewrote my screenplay depicting her as a super intelligent female who
 kicks the ass of the NSA, people will think I am helping keep her legacy
 alive and rever me for it.
+
+## JK Roling vs. Me
+
+I want to become the next big writer, but I want to remain writing for fun,
+publishing for free on my site under Creative Commons licences, and writing
+mostly fanfic or even RPF. People feel sorry for JK Roling for being a professional, despite her being a millionaire.
+
+But people like me, respect me or even think I'm prepostorous or blasphemous
+(which indicates I may be right - http://shlomifishswiki.branchable.com/Encourage_criticism_and_try_to_get_offended/ ). People would cringe at reading the Harry
+Potter books now ("TL;DR") but many of my old stories, aphorisms or factoids are
+still funny and fresh.
+
+You may not know who she is but https://twitter.com/EmmaWatson is the most
+highly paid actress in Hollywood. But it's not as if she is the new Arnold
+Schwarzenegger. Instead, Arnold Schwarzenegger is the old Emma Watson!
+Why do feel sorry for her?
+
+Let me try it again. It's not as if Taylor Swift was the new Madonna. In fact,
+Swift is the new Socrates! I'm sure Ms. Swift will approve of the new Taylor
+Swift factoid.
+
+It does not have to be this way.
+
+## Actors are not replaceable
+
+Jewel Straite testified that only she and Summer Glau could have played their
+characters on firefly. Similarly I am more and more convinced that only
+Emma Watson can play Selina on [Selina-Mandrake](https://www.shlomifish.org/humour/Selina-Mandrake/) but I'd like her to do it for fun and work for relatively
+little. It will be prepostorous to assume that Christina Grimmie can ever be
+replaced by [Tiffany Alvord](https://en.wikipedia.org/wiki/Tiffany_Alvord)
+or even Taylor Swift even though all three are wonderful singers.
+
 
