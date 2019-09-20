@@ -62,8 +62,7 @@ she can either ignore that criticism or learn from it.
 
 If I wrote a Real Person Fanfic of Taylor Swift, she won't be harmed or care.
 If I depicted her figuratively "kicking the ass" of the NSA in [Summerschool at the NSA](https://www.shlomifish.org/humour/Summerschool-at-the-NSA/)
-her reputation
-would not have been harmed a dent and it may have even give her good publicity and even fodder for songs or videos.
+it would not have harmed her reputation a dent and it may have even give her good publicity and even fodder for songs or videos.
 
 As an amateur it would not have harmed her, and I would not have been
 considered a villain.
@@ -75,7 +74,7 @@ But I did not.
 Instead I sent [Sarah Michelle Gellar](https://en.wikipedia.org/wiki/Sarah_Michelle_Gellar) and [Summer Glau](https://en.wikipedia.org/wiki/Summer_Glau) two
 actresses who seemed invaluable for that due to previous associations, and
 while their acting careers were already on the brink of termination, and I
-depicted them positively likely may have sealed the envelope on both of her
+depicted them positively, likely may have sealed the envelope on both of they
 careers. Why?
 
 Because they are professionals. The better they played, the more they were
@@ -88,7 +87,7 @@ quote: "it does not happen some of the time. It happens all the time."
 But in the music industry it never happens. It will be very preposterous to
 hear "Why no one will hear The Beatles anymore." and even though
 [Christina Grimmie](https://en.wikipedia.org/wiki/Christina_Grimmie) was killed
-(in part due to her own mismanagement) and I was shocked and saddened by that
+(in part due to her own mismanagement) and I was shocked and saddened by that)
 her songs are still popular and if I
 now rewrote my screenplay depicting her as a super intelligent female who
 kicks the ass of the NSA, people will think I am helping keep her legacy
