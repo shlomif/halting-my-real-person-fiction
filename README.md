@@ -120,4 +120,22 @@ little. It will be prepostorous to assume that Christina Grimmie can ever be
 replaced by [Tiffany Alvord](https://en.wikipedia.org/wiki/Tiffany_Alvord)
 or even Taylor Swift even though all three are wonderful singers.
 
+Actors should become amateurs and work for fun on amateur films they like by
+amateur writers who like me write mainly fanfic and often crossovers and
+real person fiction. As much as I like Kermit the Frog or Lucky Luke they
+should star along [Chuck Norris and Summer Glau](https://www.shlomifish.org/humour/Muppets-Show-TNI/Summer-Glau-and-Chuck-Norris.html) because they are equally
+awesome even if real.
 
+Chuck Norris and Bruce Lee are the last in line of master professional warriors
+(believed to have passed through [Saladin](http://shlomifishswiki.branchable.com/Saladin_Style/) himself - one of the greatest and underrated hackers of all time)
+but I believe some of the newer amateur MMA fighters could have overcome even Bruce Lee himself.
+
+So former professional actors like Emma Watson, Sarah Michelle Gellar, Summer
+Glau and Chuck Norris who the better they become the more they were resented,
+hated, envied and mistreated until they hit their breaking point. Simply because
+they were professionals and were paid money.
+
+But for now I'll write my real person fic on singers and YouTube musicians.
+I already have one factoid about Taylor Swift and there doubtless will be more.
+And I assure you that for a long time you won't see a youtube video "Why people
+won't listen to Taylor Swift again?" Poor Taylor! I'm sure she won't survive.
